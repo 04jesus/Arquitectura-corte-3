@@ -1,1 +1,0 @@
-# Arquitectura-corte-3
